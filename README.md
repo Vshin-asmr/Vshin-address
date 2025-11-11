@@ -2,7 +2,7 @@
 <!DOCTYPE HTML>
 <html lang="zh-CN">
     <body>
-        <a href="https://t.me/xingganfuli2" target="_blank"> 
+        <a href="https://t.me/xingganfuli2" > 
         最新地址
         </a>
     </body>
