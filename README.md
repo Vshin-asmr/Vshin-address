@@ -2,7 +2,7 @@
 <!DOCTYPE HTML>
 <html lang="zh-CN">
     <body>
-        <a href="https://github.com/Vshin-asmr/Vshin-address" target="_blank"> 
+        <a href="t.me/xingganfuli2" target="_blank"> 
         最新地址
         </a>
     </body>
