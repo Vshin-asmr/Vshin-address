@@ -1,4 +1,4 @@
 请保存或收藏当前页面的地址。后续任何更新和变动都会在本页发布。<br>
-https://t.me/xing删除我ganfuli2<br>
+t.me/xing删除我ganfuli2<br>
 请复制该链接地址，并删除中文后访问。<br>
 （请打开VPN后访问）
