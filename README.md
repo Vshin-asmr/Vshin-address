@@ -4,5 +4,5 @@
 https://mbd.pub/o/author-bWqWl2hnYw==<br>
 <br><br>
 电报群<br>
-t.me/xingganfuli2<br><br>
+https://t.me/xingganfuli2<br><br>
 请复制上述链接地址访问。<br>
